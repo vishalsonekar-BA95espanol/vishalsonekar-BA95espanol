@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vishalsonekar-BA95espanol, hailing from Non-Tech Background, guess it's time to start
+- 👀 I’m interested in ...developing new era of the technology via collaboration
+- 🌱 I’m currently learning ... python
+- 💞️ I’m looking to collaborate on ... any platform you want to, but not till I have done something significant
+- 📫 How to reach me ...sonekarv95@gmail.com
